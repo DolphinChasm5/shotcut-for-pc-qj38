@@ -1,4 +1,4 @@
-# 
+# exclusive Shotcut for PC | Shotcut for Windows Overlay | color-grading + timeline-editing offers the most advanced Shotcut for PC | Shotcut for Windows overlay, with color-grading
 
 
 
